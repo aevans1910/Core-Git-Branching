@@ -23,7 +23,7 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 George met the Unicorn King who granted him magic powers.
-Real life is often sad, and that's why you shouldn't do hard drugs.
+Real life is often sad, and that's why you shouldn't do hard drugs. Make sure that your mind is stable before doing something that might endanger you or those around you.
 The end.
 
 ## Cast
