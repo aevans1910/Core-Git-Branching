@@ -22,7 +22,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-George met the Unicorn King who granted him magic powers. But the Unicorn King was actually the Zookeeper dressed as a unicorns.
+George met the Unicorn King who granted him magic powers. But the Unicorn King was actually the Zookeeper dressed as a unicorn and on some strong halucinogetic drugs. Thankfully for everyone though, the Zookeeper was only in the Friendly Koala's enclosure, so no one was hurt and people could safely take the Zookeeper away to get some proper help.
 Real life is often sad, and that's why you shouldn't do hard drugs. Make sure that your mind is stable before doing something that might endanger you or those around you.
 The end.
 
